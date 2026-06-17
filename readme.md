@@ -3,7 +3,7 @@
 ## Sosial Media
 
 - [GitLab](https://gitlab.com/riziqalbab)  
-- [Instagram](https://www.instagram.com/albabriziq_/)
+- [Instagram](https://www.instagram.com/kuriziq/)
 
 
 OK
